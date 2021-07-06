@@ -4,5 +4,5 @@
 - 💬 Ask me about ... My cats, 3D PDFs and my spotify 
 - ⚡ Fun fact: ... I collect obscure designer clothes  
 
-If you know me feel free to message <br>
+If you know me feel free to message, I'm always interested in project ideas or collabs. <br>
 If you don't why are you here  👀
